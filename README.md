@@ -1,0 +1,1 @@
+Hello! This is a message here by Johnnath this executor is 💯 SAFE! dont worry it will not harm your computer! all you need to do is to open Roblox and click inject and if is green that means you good to go! but if you leave the game ill crash your game : D: :
